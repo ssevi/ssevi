@@ -1,4 +1,4 @@
-# Hi there, I'm Ssevi! 👋
+# Hi there, I'm Arya M S! 👋
 
 Welcome to my GitHub profile! I'm a passionate software developer with a love for creating innovative solutions and learning new technologies. 
 
